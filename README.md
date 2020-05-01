@@ -15,6 +15,8 @@ free-ss.site
 
 jichangdaquan.com
 
+lncn.org
+
 有事可以发我电邮yuchendaqi@gmai.com
 
 不定期回复
